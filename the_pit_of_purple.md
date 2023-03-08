@@ -1,0 +1,94 @@
+# themes
+- lovecraftian, body horror
+- in a gas station
+- violation of a place w good memories
+- weakness
+
+# story
+- returning home after many years
+- see friend Jesse from school
+- she looks almost the same but something in her eyes is diff
+- she compliments me on getting fit
+- i say thanks, but i still have a long way to go
+- the changes deeper than the skin are harder to see, but maybe she's changed in ways that I can't tell either
+- yes i know she has
+- dad interrupts about rotisserie chicken
+- hey, this is what your mom asked for right
+- wonder when they started selling rotisserie chickens in gas stations
+- don't think my mom will be pleased to see this dried husk of chicken, 'it looks fine dad'
+- all right, then let me ring up and lets go
+- all right see ya megan
+- i catch a glimpse of dissapointment in her eyes
+- should i ask for her number?
+- nah, let's just headout
+- i head out into the atrium
+- when suddenly a siren attacks my eardrums
+- i can't think, feel or move.i'm frozen in agony
+- my dad freezes, son do you see that?
+- i don't see anything
+- suddenly a patter of leaves and small stones hit the window
+- a wave of heat hits my face, somehow making its way from outside through the panes of glass
+- searing the tips of my eyelashes
+- i start to see the faint wisp of a mushroom cloud far away in the horizon
+- suddenly meghan pushes her way into the atrium too
+- i can't believe it finally happened, it's all over
+- she turns around and breaks the glass over some sort of release that i hadn't seen before
+- suddenly a huge weight drops in my stomach, it feels like a hand has reached into my lungs and pulled all th air out
+- everything outside is replaced by concrete
+- i try to gasp out 'Megan, what the hell is happening?'
+- but i'm not even able to manage a croak
+- my dad's legs collapse from the pressure
+- suddenly with a thud the platform stops moving
+- all three of us hit the floor
+- but before i can collect my thoughts i feel megan's grip on my forearm
+- she grabs me and hauls me off the platform
+- i help get my dad
+- suddenly the platform is gone again with a cloud of dust
+- at first it's too dark to see anything
+- i step out and touch one of the walls
+- what is that!
+- i pull my arm back and after a slight resistance it pulls off
+- i try to wipe off whatever is on my fingertips on my jeans
+- it barely comes off
+- suddenly i hear a grating and clanking coming from far away
+- my dad shouts out 'hello, is someone there? can you help us?'
+- I turn to Megan and ask here, 'hey, what happened outside? where are we?'
+- She peers into my eyes, tears threatning to spill
+- 'It wasn't supposed to happen, everything above is gone. everyone we know is dead'
+- the grating and clanking gets louder
+- suddenly it speeds up with a ferocity
+- i look down, i feel something grasp my leg tightly
+- i kick out but whatever it is won't let go
+- it has grasped me like a man in a desert with his last glass of water
+- i fall down, suddenly my head hits something
+- i grab it with both hands and start pounding on the thing around my leg
+- it feels like hitting a balloon filled with blood
+- i feel somethin yield and the pressure around my leg decreases
+- all that's left is a patch of purple slime around my leg
+- suddenly i hear a whistling coming from behind
+- 'Some others must have made it!' Megan shouts
+- but before the platform lands there is a crunch and a splatter
+- the smell of blood and gristle
+- a toddler walked towards the wall and fell through the gap
+- everyone gets off
+- megan tells everyone to follow her
+- i hear a squelching sound
+- i look over and i see the most beautiful pair of lips i have ever seen
+- embedded in a wall of purple slime
+- suddenly there are tendrils grasping my nech and around my left armpit
+- thin lines of fire that burn into my skin and through my clothes
+- i try to push away
+- i feel megan grasp my hand and pull
+- but the lines just dig deeper into me
+- 'Megan, don't let go! hit them with the pipe!'
+- 'I'm sorry, if we stay then we'll all be food for this beast'
+- I try to strangle her hand in my grasp but it slips away
+- suddenly more tendrils make their way onto my face
+- they force their way in through my nostrils
+- down my throat
+- and into my eyesockets
+- i try to cough the slime out but somehow it only works its way deeper into me
+- the taste of gasoline drowns my mouth
+- i hear a quiet whisper, i can't pinpoint where it comes from
+- 'let go my friend, let go of your earthly tether and be free'
+
