@@ -91,4 +91,11 @@
 - the taste of gasoline drowns my mouth
 - i hear a quiet whisper, i can't pinpoint where it comes from
 - 'let go my friend, let go of your earthly tether and be free'
-
+- i scream, or atleast try to, 'no, i want to live, where are the others? how could they leave me?'
+- 'dad!'
+- suddenly my body sags
+- i realize that i haven't been able to breathe for a long time
+- longer than possible
+- the tentacls draw me into the wall
+- i'm no longer me
+- i'm part of the pit
