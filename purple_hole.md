@@ -1,0 +1,21 @@
+- lovecraftian, body horror
+- in a gas station
+- returning home for first time after many years at college
+- see friend Jesse from school
+- she looks almost the same but something in her eyes is diff
+- she compliments me on getting fit
+- i say thanks, but i still have a long way to go
+- dad interrupts about rotisserie chicken
+- hey, this is what your mom asked for right
+- wonder when they started selling rotisserie chickens in petrocanada
+- don't think my mom will be pleased to see this dried husk of chicken, 'it looks fine dad'
+- all right, then let me ring up and lets go
+- all right see ya megan
+- i catch a glimpse of dissapointment in her eyes
+- should i ask for her number?
+- nah, let's just headout
+- i head out into the atrium
+- when suddenly a siren blares out
+- my dad freezes, son do you see that?
+- 
+
