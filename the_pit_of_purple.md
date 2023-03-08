@@ -74,6 +74,7 @@
 - megan tells everyone to follow her
 - i hear a squelching sound
 - i look over and i see the most beautiful pair of lips i have ever seen
+- shining violet eye, i can't look away, obvious intelligence
 - embedded in a wall of purple slime
 - suddenly there are tendrils grasping my nech and around my left armpit
 - thin lines of fire that burn into my skin and through my clothes
