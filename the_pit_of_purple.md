@@ -6,7 +6,7 @@
 
 # story
 - returning home after many years
-- see friend Jesse from school
+- see friend megan from school
 - she looks almost the same but something in her eyes is diff
 - she compliments me and asks me if i've been going to the gym
 - i say thanks, but i still have a long way to go
