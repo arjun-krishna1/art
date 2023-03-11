@@ -8,7 +8,7 @@
 - returning home after many years
 - see friend Jesse from school
 - she looks almost the same but something in her eyes is diff
-- she compliments me on getting fit
+- she compliments me and asks me if i've been going to the gym
 - i say thanks, but i still have a long way to go
 - the changes deeper than the skin are harder to see, but maybe she's changed in ways that I can't tell either
 - yes i know she has
